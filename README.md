@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Chloroplasts
 - 👀 I’m interested in Ancient & Current concepts and technology. To live in harmony with nature. Using current / creating tools to slowly meet that goal.
 - 🌱 I’m currently learning Traditional Chinese Medicine from a clinic assistance perspective.
-- 💞️ I’m looking to collaborate on writing stories which fork possible paths, humanity would take in the future due to certain circumstances. So as to simulate, study, discuss and create awareness whether that those are wise directions. 
+- 💞️ I’m looking to collaborate on writing stories on possible humanity evolution paths. So as to encourage study, discuss and create awareness on their consquences. 
 - 📫 Twitter @gamefm
 
 <!---
